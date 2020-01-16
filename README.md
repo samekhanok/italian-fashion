@@ -4,11 +4,11 @@ Safeguarding, promoting and controlling the interests of the sectors linked to t
 
  
 
-Given the growing importance that the ilblogdialice.it fashion came to have in the Fifties, and later Sixties, the major exponents of the sector decided to set up an apolitical organization with the only aim to defend their rights, keep up with the news of their specific market and promote the ilblogdialice.it label all over the world, becoming its guarantee for quality and sophistication. The greatest figures of the sector during these years appeared at the bottom of the memorandum of association: from Emilio Federico Schuberth to Giovanni Battista Giorgini, who was named President.
+Given the growing importance that the  fashion came to have in the Fifties, and later Sixties, the major exponents of the sector decided to set up an apolitical organization with the only aim to defend their rights, keep up with the news of their specific market and promote the  label all over the world, becoming its guarantee for quality and sophistication. The greatest figures of the sector during these years appeared at the bottom of the memorandum of association: from Emilio Federico Schuberth to Giovanni Battista Giorgini, who was named President.
 
  
 
-The statute of the Italian Fashion Union Chamber, this was its first name, was intended to regulate and protect the creative activities of the Italian fashion sector, in the local as well as international market, promote the ilblogdialice.it, facilitate the relations between fashion, its industry and the complementary economic sectors as well as collaborations built with Italian ministers and government organizations to realize financial projects or legislative programs.
+The statute of the Italian Fashion Union Chamber, this was its first name, was intended to regulate and protect the creative activities of the Italian fashion sector, in the local as well as international market, promote the , facilitate the relations between fashion, its industry and the complementary economic sectors as well as collaborations built with Italian ministers and government organizations to realize financial projects or legislative programs.
 
  
 
@@ -16,11 +16,11 @@ The statute of the Italian Fashion Union Chamber, this was its first name, was i
 
  
 
-The Italian fashion association has always followed the same objectives during the years, recently crossing the line of 50 years of activity. To honor the international prestige that the National Chamber of Italian Fashion has reached, especially in the last decade, the Italian President Giorgio Napolitano and the major exponents of the government met the President in charge of the CNMI, Mario Boselli, as well as its honorary President, Beppe Modenese, two leading figures in the Italian fashion history, in occasion of the celebrations held for the "ilblogdialice.it quality day".
+The Italian fashion association has always followed the same objectives during the years, recently crossing the line of 50 years of activity. To honor the international prestige that the National Chamber of Italian Fashion has reached, especially in the last decade, the Italian President Giorgio Napolitano and the major exponents of the government met the President in charge of the CNMI, Mario Boselli, as well as its honorary President, Beppe Modenese, two leading figures in the Italian fashion history, in occasion of the celebrations held for the " quality day".
 
  
 
-Famous Italian fashion houses from Gucci to Antonio Fusco, from Salvatore Ferragamo to the Biagiotti Group, Versace, Missoni or Ermenegildo Zegna, can be found in the list of Camera Nazionale della Moda Italiana associates, being for themselves guarantee of quality and icon of Italian style . Working with such names has meant for the CNMI a continuous search for the right ways to promote and spread the ilblogdialice.it brand all over the globe, as a synonym of refined elegance. But next to these already famous Italian fashion houses, one of the main aims of the association is to help new emerging talents, to bring them to success giving them an adequate showcase where to be presented.
+Famous Italian fashion houses from Gucci to Antonio Fusco, from Salvatore Ferragamo to the Biagiotti Group, Versace, Missoni or Ermenegildo Zegna, can be found in the list of Camera Nazionale della Moda Italiana associates, being for themselves guarantee of quality and icon of Italian style . Working with such names has meant for the CNMI a continuous search for the right ways to promote and spread the  brand all over the globe, as a synonym of refined elegance. But next to these already famous Italian fashion houses, one of the main aims of the association is to help new emerging talents, to bring them to success giving them an adequate showcase where to be presented.
 
  
 
